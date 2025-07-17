@@ -4,7 +4,7 @@ moon here
 
 likes: my little pony, friday night funkin and invincible
 
-dislikes: people who are rude for no reason, dry people, being made fun of AND sensitive over small things (just like me, im basically projecting..)
+dislikes: people who are rude for no reason, dry people, being made fun of AND people sensitive over small things (just like me, im basically projecting..)
 
 fav color: pink n' yellow !! yummy colors.
 
